@@ -3,9 +3,9 @@
 - eu amo strogonoff de frango 🐔
 - amo dormir 😴
 - adoro uma coquinha gelada com limão
-- gosto muitoo de gastar o dinheiro do meu pai
+- gosto muitoo de gastar o dinheiro do meu pai 
 - eu amoo roblox 
-- AMO AÇAI
+- AMO AÇAI 
 - gosto dos filmes de pricesas da disney
 - adoro animaizinhos 🐱 🐶
 
